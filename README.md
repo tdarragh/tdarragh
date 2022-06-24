@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tdarragh
-- 👀 I’m interested in ... Motion, design, and building thinkgs.
+- 👀 I’m interested in ... Motion, design, and building things.
 - 🌱 I’m currently learning ... Game design.
 - 📫 How to reach me ... timdarragh.com
 
